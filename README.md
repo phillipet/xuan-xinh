@@ -7,7 +7,7 @@ Xuân thắm môi hồng
 Hôn lên má xinh
 Xuân chiếu nắng vàng
 Lên tóc mây bay
-Xuân tưới nắng vàng
+Sương rắc nắng hồng
 Thêm tươi sắc hoa
 
 Kia làn mây trắng tinh
